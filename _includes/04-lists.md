@@ -1,3 +1,3 @@
 :heart::heart:
--1.  Sachin
-*2.  MS dhoni
+1.  * Sachin
+2.  * MS dhoni
