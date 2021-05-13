@@ -1,1 +1,1 @@
-![GOAT](https://images.app.goo.gl/bxfkmdUr8cmKfG278)
+![GOAT](https://images.app.goo.gl/kgEzZPfVQioMM97U9)
